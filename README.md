@@ -1,2 +1,2 @@
 # Uas_Ahmad-Fauzi-221011403240_AI
-NAMA  Ahmad Fauzi 
+Uas Ahmad Fauzi 221011403240 05TPLE018
